@@ -19,7 +19,8 @@
 
 - 📫 How to reach me **tejeshwarrao9179@gmail.com**
 
-- - 📄 Know about my experiences (https://drive.google.com/drive/u/0/home)](https://drive.google.com/file/d/1yBiTYlU8p3z9yfWh7d3TDzRrXxH5YFvE/view?usp=sharing)
+-- 📄 Know about my experiences: [Click to View Resume](https://drive.google.com/file/d/1yBiTYlU8p3z9yfWh7d3TDzRrXxH5YFvE/view?usp=sharing)
+
 
 
 <h3 align="left">Connect with me:</h3>
